@@ -11,8 +11,5 @@ https://github.com/rapistlaitman/shame-laitman/blob/main/Spanish.md
 
 ![](images/1.png)
 ![](images/8.png)
-![](images/3.png)
-![](images/4.png)
-![](images/5.png)
 ![](images/6.png)
 ![](images/7.png)
