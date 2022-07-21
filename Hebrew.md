@@ -4,11 +4,10 @@
 <h1> תלמדי בני ברוך יקרים שימו לב ! מיכאל לייטמן קיבל זימון לבית משפט בתאריך 27/4/22, בגין תביעת דיבה שמתנהלת בבית משפט בישראל. </h1>
 
 <a href="https://www.facebook.com/sharer/sharer.php?u=https://github.com/r/apistlaitman/shame-laitman/wiki/Hebrew" target="_blank">
-  Share on Facebook
+  <img src="./icons/icons8-facebook-64.png" alt="Michael Laitman Rapist">
 </a>
-
 <a href="https://www.linkedin.com/sharing/share-offsite/?url=https://github.com/rapistlaitman/shame-laitman/wiki/Hebrew" target="_blank">
-Share on LinkedIn
+<img src="./icons/linkedin-icon.png" alt="Michael Laitman Rapist">
 </a>
 
 כחלק מתיק התביעה הגישה תלמידה לשעבר תצהיר על אונס שעברה על ידו. כדי למנוע את פרסום הדבר השתמש באיומים קשים כנגדה, כולל
@@ -50,11 +49,10 @@ Share on LinkedIn
 <br><br>
 
 <a href="https://www.facebook.com/sharer/sharer.php?u=https://github.com/r/apistlaitman/shame-laitman/wiki/Hebrew" target="_blank">
-Share on Facebook
+  <img src="./icons/icons8-facebook-64.png" alt="Michael Laitman Rapist">
 </a>
-
 <a href="https://www.linkedin.com/sharing/share-offsite/?url=https://github.com/rapistlaitman/shame-laitman/wiki/Hebrew" target="_blank">
-Share on LinkedIn
+<img src="./icons/linkedin-icon.png" alt="Michael Laitman Rapist">
 </a>
 
 **להלן כמה דגשים משמעותיים ומחרידים מהעדות מטה:**
@@ -90,11 +88,10 @@ Share on LinkedIn
 **[https://www.applebaum.org.il](https://www.applebaum.org.il)**
 
 <a href="https://www.facebook.com/sharer/sharer.php?u=https://github.com/r/apistlaitman/shame-laitman/wiki/Hebrew" target="_blank">
-Share on Facebook
+  <img src="./icons/icons8-facebook-64.png" alt="Michael Laitman Rapist">
 </a>
-
 <a href="https://www.linkedin.com/sharing/share-offsite/?url=https://github.com/rapistlaitman/shame-laitman/wiki/Hebrew" target="_blank">
-Share on LinkedIn
+<img src="./icons/linkedin-icon.png" alt="Michael Laitman Rapist">
 </a>
 
 # עדות שמסרה תושבת חוץ שהיתה חסידה של בני ברוך לגבי פגיעה מינית שחוותה ממיכאל לייטמן בשנת 2014

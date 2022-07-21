@@ -1,11 +1,10 @@
 <h1> Уважаемые студенты Бней Барух, обратите внимание! 27.04.22 Михаэль Лайтман получил повестку в суд по иску, в котором его обвиняют в изнасиловании бывшей студентки на фото.</h1>
 
 <a href="https://www.facebook.com/sharer/sharer.php?u=https://github.com/r/apistlaitman/shame-laitman/wiki/Russian" target="_blank">
-  Share on Facebook
+  <img src="./icons/icons8-facebook-64.png" alt="Michael Laitman Rapist">
 </a>
-
 <a href="https://www.linkedin.com/sharing/share-offsite/?url=https://github.com/rapistlaitman/shame-laitman/wiki/Russian" target="_blank">
-Share on LinkedIn
+<img src="./icons/linkedin-icon.png" alt="Michael Laitman Rapist">
 </a>
 
 В рамках обвинения бывшая студентка подала показания под присягой об изнасиловании, которое он совершил Михаэль Лайтман.
@@ -43,11 +42,10 @@ Share on LinkedIn
 ![](images/5.png)
 
 <a href="https://www.facebook.com/sharer/sharer.php?u=https://github.com/r/apistlaitman/shame-laitman/wiki/Russian" target="_blank">
-  Share on Facebook
+  <img src="./icons/icons8-facebook-64.png" alt="Michael Laitman Rapist">
 </a>
-
 <a href="https://www.linkedin.com/sharing/share-offsite/?url=https://github.com/rapistlaitman/shame-laitman/wiki/Russian" target="_blank">
-Share on LinkedIn
+<img src="./icons/linkedin-icon.png" alt="Michael Laitman Rapist">
 </a>
 
 Вот некоторые важные и ужасающие моменты из приведенных ниже свидетельства:
@@ -80,11 +78,10 @@ Share on LinkedIn
 **[https://www.applebaum.org.il](https://www.applebaum.org.il)**
 
 <a href="https://www.facebook.com/sharer/sharer.php?u=https://github.com/r/apistlaitman/shame-laitman/wiki/Russian" target="_blank">
-  Share on Facebook
+  <img src="./icons/icons8-facebook-64.png" alt="Michael Laitman Rapist">
 </a>
-
 <a href="https://www.linkedin.com/sharing/share-offsite/?url=https://github.com/rapistlaitman/shame-laitman/wiki/Russian" target="_blank">
-Share on LinkedIn
+<img src="./icons/linkedin-icon.png" alt="Michael Laitman Rapist">
 </a>
 
 # Свидетельство бывшей студентки Бней Барух, о сексуальном насилии которому она подверглась со стороны Михаэля Лайтмана в 2014 году.
