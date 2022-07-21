@@ -6,6 +6,12 @@
 <a href="https://www.linkedin.com/sharing/share-offsite/?url=https://github.com/rapistlaitman/shame-laitman/wiki/Russian" target="_blank">
 <img src="./icons/linkedin-icon.png" alt="Michael Laitman Rapist">
 </a>
+<a href="https://vk.com/share.php?url=https://github.com/rapistlaitman/shame-laitman/wiki/Russian" target="_blank">
+<img src="./icons/vk.png" alt="Michael Laitman Rapist">
+</a>
+<a href="https://connect.ok.ru/offer?url=https://github.com/rapistlaitman/shame-laitman/wiki/Russian" target="_blank">
+<img src="./icons/odnoklassniki.png" alt="Michael Laitman Rapist">
+</a>
 
 В рамках обвинения бывшая студентка подала показания под присягой об изнасиловании, которое он совершил Михаэль Лайтман.
 Чтобы это не было опубликовано, он применял против нее резкие угрозы, в том числе использовал преступников, которые жестоко ей угрожали расправой с её матерью и семьи, и в результате она остановила иск и забрала заявление.
@@ -47,6 +53,12 @@
 <a href="https://www.linkedin.com/sharing/share-offsite/?url=https://github.com/rapistlaitman/shame-laitman/wiki/Russian" target="_blank">
 <img src="./icons/linkedin-icon.png" alt="Michael Laitman Rapist">
 </a>
+<a href="https://vk.com/share.php?url=https://github.com/rapistlaitman/shame-laitman/wiki/Russian" target="_blank">
+<img src="./icons/vk.png" alt="Michael Laitman Rapist">
+</a>
+<a href="https://connect.ok.ru/offer?url=https://github.com/rapistlaitman/shame-laitman/wiki/Russian" target="_blank">
+<img src="./icons/odnoklassniki.png" alt="Michael Laitman Rapist">
+</a>
 
 Вот некоторые важные и ужасающие моменты из приведенных ниже свидетельства:
 
@@ -76,12 +88,19 @@
 «На следующий день он снова пригласил меня. Он снова хотел переспать со мной, но у него не было эрекции. Он попросил меня заняться с ним оральным сексом, но я не смогла. Он разозлился и выгнал меня из своей квартиры».
 
 **[https://www.applebaum.org.il](https://www.applebaum.org.il)**
+<br><br>
 
 <a href="https://www.facebook.com/sharer/sharer.php?u=https://github.com/r/apistlaitman/shame-laitman/wiki/Russian" target="_blank">
   <img src="./icons/icons8-facebook-64.png" alt="Michael Laitman Rapist">
 </a>
 <a href="https://www.linkedin.com/sharing/share-offsite/?url=https://github.com/rapistlaitman/shame-laitman/wiki/Russian" target="_blank">
 <img src="./icons/linkedin-icon.png" alt="Michael Laitman Rapist">
+</a>
+<a href="https://vk.com/share.php?url=https://github.com/rapistlaitman/shame-laitman/wiki/Russian" target="_blank">
+<img src="./icons/vk.png" alt="Michael Laitman Rapist">
+</a>
+<a href="https://connect.ok.ru/offer?url=https://github.com/rapistlaitman/shame-laitman/wiki/Russian" target="_blank">
+<img src="./icons/odnoklassniki.png" alt="Michael Laitman Rapist">
 </a>
 
 # Свидетельство бывшей студентки Бней Барух, о сексуальном насилии которому она подверглась со стороны Михаэля Лайтмана в 2014 году.
@@ -152,11 +171,7 @@
 Я принимала активное участие в организации Конгресса.
 </li>
 <li>
-При подготовке к конгрессу Жак Дуев сообщил всем членам группы, что я имею честь быть помощником Лайтмана на конгрессе. Я была очень взволнована и счастлива. Возможность встретиться и послужить раву была похожа на сбывшуюся мечту.
-</li>
-<li>
-Я помню, что ближе к дате конгресса Жак Дуев рассказал мне что Лайтман попросил его посмотреть мою фотографию, увидев мою фотографию Лайтман подтвердил мою роль своего помощника.
-Ноам Дуев жена Жака тоже повторяла мне это во время конгресса.
+При подготовке к конгрессу Жак Дуев <a href="https://www.facebook.com/jacques.douieb" target="_blank">https://www.facebook.com/jacques.douieb</a> сообщил всем членам группы, что я имею честь быть помощником Лайтмана на конгрессе. Я была очень взволнована и счастлива. Возможность встретиться и послужить раву была похожа на сбывшуюся мечту.
 </li>
 <li>
 Мне, как личному помощнику Лайтмана, было поручено подготовить стол для Лайтмана во время конференции - принести ему воды, приготовить чай, принести ему все необходимое. Также я организовала ему коттедж в котором он проживал (принесла воду, йогурт и т.д.) вместе с Н. До его прибытия. Перед Конгрессом помощник по имени Р. Был ассистентом центра европейской группы Бней Баруха, прислал мне список требований Лайтмана - все, что нужно для него приготовить (йогурт, немного воды и т.д.). Помню, помощник Лайтмана С. просил минеральную воду и такого типа, которого не было во Франции, и я очень смущалась что не соответствую требованиям Лайтмана (сам Лайтман потом говорил мне, что не придавал никакого значения на тип минеральной воды).
@@ -169,7 +184,7 @@
 # Конгресс в моей стране проживания
 
 <li>
-В рамках подготовки к конференции мы забронировали размещение в своеобразном коттедже на сайте конгресса. Лайтмана помещают в коттедж с его телохранителями — Михаилом Снилевичем (https://www.facebook.com/michael.sanilevich) — мужем его дочери, и парнем по имени Арие Макаревич.
+    В рамках подготовки к конференции мы забронировали размещение в своеобразном коттедже на сайте конгресса. Лайтмана помещают в коттедж с его телохранителями — Михаилом Снилевичем <a href="https://www.facebook.com/michael.sanilevich" target="_blank">https://www.facebook.com/michael.sanilevich</a> — муж его дочери, и парнем по имени Арие Макаревич.
 </li>
 <li>
 Когда они прибыли на конгресс, он попросил разместить телохранителей в отдельной комнате, рядом с его комнатой.

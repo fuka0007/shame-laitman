@@ -9,6 +9,12 @@
 <a href="https://www.linkedin.com/sharing/share-offsite/?url=https://github.com/rapistlaitman/shame-laitman/wiki/Hebrew" target="_blank">
 <img src="./icons/linkedin-icon.png" alt="Michael Laitman Rapist">
 </a>
+<a href="https://vk.com/share.php?url=https://github.com/rapistlaitman/shame-laitman/wiki/Hebrew" target="_blank">
+<img src="./icons/vk.png" alt="Michael Laitman Rapist">
+</a>
+<a href="https://connect.ok.ru/offer?url=https://github.com/rapistlaitman/shame-laitman/wiki/Hebrew" target="_blank">
+<img src="./icons/odnoklassniki.png" alt="Michael Laitman Rapist">
+</a>
 
 כחלק מתיק התביעה הגישה תלמידה לשעבר תצהיר על אונס שעברה על ידו. כדי למנוע את פרסום הדבר השתמש באיומים קשים כנגדה, כולל
 שימוש בעבריינים אשר סחטו אותה בצורה קשה, וכתוצאה מכך היא חזרה בה.
@@ -54,6 +60,12 @@
 <a href="https://www.linkedin.com/sharing/share-offsite/?url=https://github.com/rapistlaitman/shame-laitman/wiki/Hebrew" target="_blank">
 <img src="./icons/linkedin-icon.png" alt="Michael Laitman Rapist">
 </a>
+<a href="https://vk.com/share.php?url=https://github.com/rapistlaitman/shame-laitman/wiki/Hebrew" target="_blank">
+<img src="./icons/vk.png" alt="Michael Laitman Rapist">
+</a>
+<a href="https://connect.ok.ru/offer?url=https://github.com/rapistlaitman/shame-laitman/wiki/Hebrew" target="_blank">
+<img src="./icons/odnoklassniki.png" alt="Michael Laitman Rapist">
+</a>
 
 **להלן כמה דגשים משמעותיים ומחרידים מהעדות מטה:**
 
@@ -86,12 +98,19 @@
 **מסוגלת. הוא התרגז וגירש אותי מהדירה שלו."**
 
 **[https://www.applebaum.org.il](https://www.applebaum.org.il)**
+<br><br>
 
 <a href="https://www.facebook.com/sharer/sharer.php?u=https://github.com/r/apistlaitman/shame-laitman/wiki/Hebrew" target="_blank">
   <img src="./icons/icons8-facebook-64.png" alt="Michael Laitman Rapist">
 </a>
 <a href="https://www.linkedin.com/sharing/share-offsite/?url=https://github.com/rapistlaitman/shame-laitman/wiki/Hebrew" target="_blank">
 <img src="./icons/linkedin-icon.png" alt="Michael Laitman Rapist">
+</a>
+<a href="https://vk.com/share.php?url=https://github.com/rapistlaitman/shame-laitman/wiki/Hebrew" target="_blank">
+<img src="./icons/vk.png" alt="Michael Laitman Rapist">
+</a>
+<a href="https://connect.ok.ru/offer?url=https://github.com/rapistlaitman/shame-laitman/wiki/Hebrew" target="_blank">
+<img src="./icons/odnoklassniki.png" alt="Michael Laitman Rapist">
 </a>
 
 # עדות שמסרה תושבת חוץ שהיתה חסידה של בני ברוך לגבי פגיעה מינית שחוותה ממיכאל לייטמן בשנת 2014
@@ -162,8 +181,8 @@
 לקראת הכנת הקונגרס הודיע ז'אק דוייב מייל לכל חברי הקבוצה שלפיו לי יש את הכבוד להיות העוזרת של רב בקונגרס. הייתי מאוד נרגשת ושמחה. ההזדמנות לפגוש ולשרת את רב הייתה כמו חלום שהתגשם.
 </li>
 <li>
-זכור לי שבסמוך לכנס ז'אק דוייב (https://www.facebook.com/jacques.douieb) סיפר לי שלייטמן ביקש את לראות את תמונתי ואחרי שראה את התמונה אישר את תפקידי כעוזרתו. 
-אשתו, נועם דוייב (https://www.facebook.com/douieb.noam) גם היא חזרה על דברים אלה בפני במהלך הקונגרס. 
+זכור לי שבסמוך לכנס ז'אק דוייב <a href="https://www.facebook.com/jacques.douieb" target="_blank">https://www.facebook.com/jacques.douieb</a> סיפר לי שלייטמן ביקש את לראות את תמונתי ואחרי שראה את התמונה אישר את תפקידי כעוזרתו. 
+אשתו, נועם דוייב <a href="https://www.facebook.com/douieb.noam" target="_blank">https://www.facebook.com/douieb.noam</a> גם היא חזרה על דברים אלה בפני במהלך הקונגרס. 
 </li>
 <li>
 כעוזרת האישית של לייטמן, אני קיבלתי את התפקיד להכין את השולחן של לייטמן במהלך הכנס – להביא לו מים, להכין לו תה, להביא לו כל דבר שיצטרך. כמו כך, ארגנתי את הקוטג’ עבורו (שמתי מים, יוגורט וכו’) ביחד עם נועם דוייב לפני הגעתו. לפני הקונגרס, עוזרת בשם ר. שהייתה עוזרת למרכז הקבוצה האירופאית של בני ברוך, שלחה לי את רשימת הדרישות של לייטמן – כל הדברים שצריך להכין עבורו (יוגורט, מים מסוימים וכו’). אני זוכרת שהעוזרת של לייטמן, ש., ביקשה מים מינרליים מסוג שלא קיים בצרפת  ואני הייתי מאד נבוכה מכך שלא עמדתי בדרישות של לייטמן (לייטמן עצמו אמר לי לאחר מכן שלא ייחס כל חשיבות לסוג המים המינרליים). אני זוכרת שדיברתי על כך עם חברי הקבוצה ואחת החברות שגרה קרוב לגבול הציעה שתיסע למדינה השכנה כדי לקנות מים מהסוג שביקש. לא העלינו על דעתנו לא לכבד את דרישותיו עד הקטנה שבהן.
@@ -175,7 +194,8 @@
 # הכנס במדינת מגוריי
 
 <li>
-במסגרת ההכנות שנערכו לקראת הכנס, הזמנו מקומות לינה במעין קוטג’ים באתר הקונגרס. לייטמן שובץ ללון בקוטג’ יחד עם שומרי ראשו – מיכאל סנילביץ’ (https://www.facebook.com/michael.sanilevich) – בעלה של בתו ובחור בשם אריה מקרביץ׳. כשהם הגיעו לכנס הוא ביקש לשים את שומרי הראש בחדר נפרד, בצמוד לחדר שלו.
+במסגרת ההכנות שנערכו לקראת הכנס, הזמנו מקומות לינה במעין קוטג’ים באתר הקונגרס. לייטמן שובץ ללון בקוטג’ יחד עם שומרי ראשו – מיכאל סנילביץ’ <a href="https://www.facebook.com/michael.sanilevich" target="_blank">https://www.facebook.com/michael.sanilevich</a>
+ – בעלה של בתו ובחור בשם אריה מקרביץ׳. כשהם הגיעו לכנס הוא ביקש לשים את שומרי הראש בחדר נפרד, בצמוד לחדר שלו.
 </li>
 <li>
 כשלייטמן הגיע לאתר הקונגרס הראיתי לו את החדר שלו (ואת היוגורט, המים וכו’) והוא התחיל לשאול אותי שאלות על עצמי. זה היה הרגע הכי מרגש בחיי. האדם שאני הכי מעריצה בעולם מדבר איתי במשך 15 דקות!
