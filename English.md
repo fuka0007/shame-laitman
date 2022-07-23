@@ -2,7 +2,7 @@
 # Dear Bnei Baruch students, pay attention! Michael Laitman received a summons to court on April 27, 22, for a defamation lawsuit that is being heard in a court in Israel.
 
 <a href="https://www.facebook.com/sharer/sharer.php?u=https://github.com/r/apistlaitman/shame-laitman/wiki/English" target="_blank">
- <img src="./icons/icons8-facebook-64.png" alt="Michael Laitman Rapist">
+<img src="./icons/icons8-facebook-64.png" alt="Michael Laitman Rapist">
 </a>
 <a href="https://www.linkedin.com/sharing/share-offsite/?url=https://github.com/rapistlaitman/shame-laitman/wiki/English" target="_blank">
 <img src="./icons/linkedin-icon.png" alt="Michael Laitman Rapist">
@@ -13,12 +13,13 @@
 <a href="https://connect.ok.ru/offer?url=https://github.com/rapistlaitman/shame-laitman/wiki/English" target="_blank">
 <img src="./icons/odnoklassniki.png" alt="Michael Laitman Rapist">
 </a>
+<br>
+<br>
 
-
-<br>    
 As part of the prosecution case, a former student filed an affidavit of rape she had committed. To prevent this from being published he used harsh threats against her, including using criminals who blackmailed her severely, as a result she retracted her testimony. Rav.Laitman of "Kabbalah La'am" tried to evade testimony regarding a sexual assault that was allegedly silenced in the "Kabbalah La'am" movement, claiming that it was dangerous for him to enter the hall due to his health condition and fear that he would be infected with Covid-19.
 <br>
 After showing the judge pictures he posted when he met people as if there was no Covid, the judge denied his request to testify on video.
+<br>
 <br>
 
 ![](images/1.png)
@@ -59,7 +60,7 @@ Aryeh Makarevich (his bodyguards) rents a luxurious hotel for Laitman with a bed
 
 
 <a href="https://www.facebook.com/sharer/sharer.php?u=https://github.com/r/apistlaitman/shame-laitman/wiki/English" target="_blank">
- <img src="./icons/icons8-facebook-64.png" alt="Michael Laitman Rapist">
+<img src="./icons/icons8-facebook-64.png" alt="Michael Laitman Rapist">
 </a>
 <a href="https://www.linkedin.com/sharing/share-offsite/?url=https://github.com/rapistlaitman/shame-laitman/wiki/English" target="_blank">
 <img src="./icons/linkedin-icon.png" alt="Michael Laitman Rapist">
@@ -70,7 +71,8 @@ Aryeh Makarevich (his bodyguards) rents a luxurious hotel for Laitman with a bed
 <a href="https://connect.ok.ru/offer?url=https://github.com/rapistlaitman/shame-laitman/wiki/English" target="_blank">
 <img src="./icons/odnoklassniki.png" alt="Michael Laitman Rapist">
 </a>
-
+<br>
+<br>    
 
 Here are some significant and appalling highlights from the testimonies below:
 
@@ -94,7 +96,7 @@ However, he sometimes said "without me you will not be able to feel the Creator"
 https://www.applebaum.org.il
 
 <a href="https://www.facebook.com/sharer/sharer.php?u=https://github.com/r/apistlaitman/shame-laitman/wiki/English" target="_blank">
- <img src="./icons/icons8-facebook-64.png" alt="Michael Laitman Rapist">
+<img src="./icons/icons8-facebook-64.png" alt="Michael Laitman Rapist">
 </a>
 <a href="https://www.linkedin.com/sharing/share-offsite/?url=https://github.com/rapistlaitman/shame-laitman/wiki/English" target="_blank">
 <img src="./icons/linkedin-icon.png" alt="Michael Laitman Rapist">
@@ -152,7 +154,10 @@ When I listened to his voice in class his voice made me very calm and peaceful. 
 # The visit to Israel and the personal acquaintance with Laitman
 
 <li>
-In 2014, I arrived in Israel for the Congress of the Book of Zohar. Before that I did not know Laitman personally. I felt I adored him and he was my teacher but I did not know him.
+In 2014, I arrived in Israel for the Congress of the Book of Zohar. Before that I did not know Laitman personally. 
+</li>
+<li>
+I felt I adored him and he was my teacher but I did not know him.
 </li>
 <li>
 During the conference, Jacques Douieb invited Bnei Baruch's French speakers to the conference - about eight members of the virtual group as well as French-speaking Israelis - for a personal meeting with Laitman in his apartment in the Bnei Baruch Center in Petah Tikva. During the session we gathered for a group photo and Laitman shook his head at me, as if inviting me to stand close to him.
@@ -188,8 +193,8 @@ We were all willing to do anything for him because we were grateful to Him becau
 # The convention was in my country of residence.
 
 <li>
-As part of the preparations made for the conference, we booked accommodation in a kind of cottage on the congress website. Laitman is placed in the room with his bodyguards - Michael Snilevich https://www.facebook.com/michael.sanilevich - the husband of his daughter and a guy 
-named Arie Makrevich. 
+As part of the preparations made for the conference, we booked accommodation in a kind of cottage on the congress website. Laitman is placed in the room with his bodyguards - Michael Snilevich https://www.facebook.com/michael.sanilevich - the husband of his daughter and a guy
+named Arie Makrevich.
 </li>
 <li>
 When they arrived at the conference he asked to put the bodyguards in a separate room, next to his room.
@@ -204,7 +209,7 @@ Then we all went to his lecture. My duties during the lecture were to bring him 
 After the lecture there was a meal. After the meal, alI went up to him and asked him if he needed anything more. He asked me if I had any questions about Kabbalah. I replied that of course I have (for me he was the person who could answer all my questions!). Then he said I could come to his room in the evening, so I could ask him questions.
 </li>
 <li>
-I was shocked. I told my friend M. that Laitman invited me to his room. M. was shocked and told me: "If what I think is right, I intend to leave the group." She told me not to go to his room. 
+I was shocked. I told my friend M. that Laitman invited me to his room. M. was shocked and told me: "If what I think is right, I intend to leave the group." She told me not to go to his room.
 </li>
 <li>
 I accepted her offer because I did not want to know if what I was afraid of was true. I could not afford to be disappointed in him. I told myself I must be wrong about his intentions; But, even if there is a small risk that I am right, it is better not to take the risk. I did not even dare to tell myself explicitly what I was afraid of.
@@ -225,10 +230,10 @@ His "bodyguard," Makrevich, approached me and asked me what had happened. I said
 <li>
 I suspected that in his words he was actually hinting to me that if I slept with Laitman, it would be a completely normal act - but I did not believe it could be true because of my admiration for the Rav. I hoped I was wrong.
 <br>
-Makarevich told me that Rav. chose me to serve as an assistant during the congress because he saw my picture. He said Laitman chose me and did not want N. to serve him coffee because she has dark hair and loves blondes. 
+Makarevich told me that Rav. chose me to serve as an assistant during the congress because he saw my picture. He said Laitman chose me and did not want N. to serve him coffee because she has dark hair and loves blondes.
 </li>
 <li>
-I told Makarevich that I was married. He did not answer. He did not explicitly say that Laitman wanted to sleep with me but he hinted at that fact. 
+I told Makarevich that I was married. He did not answer. He did not explicitly say that Laitman wanted to sleep with me but he hinted at that fact.
 </li>
 <li>
 I was afraid to approach Laitman so I asked Makarevich to tell Laitman that I did not come at night to talk to him because I did not want to endanger Laitman's reputation, so that he would stop being angry with me.
@@ -267,7 +272,7 @@ When we arrived at the apartment of the Rav. (in the center) Laitman was awake a
 I hugged Laitman and felt he wanted something beyond the hug. He started putting his hands on me and tried to kiss me. I was disgusted and rejected him. I told him I could not now. He did not insist and said: “Well, you are tired now. See you tomorrow". The meeting lasted about 15 minutes. I called him and we went home.
 </li>
 <li>
-The next day I brought him gifts I had brought for him from my country. He tried to sleep with me again and I refused. Aside from the fact that I was not interested, I just could not understand how a man on such a spiritual level would allow himself to violate the prohibition on sex outside of marriage and adultery (since I was a married woman). I told myself that if my mission on the path to spiritual transcendence is to marry Laitman then I must do so. I thought if he wants me as his wife then he knows the right way for me. Although I did not want him as a man, I was ready for this sacrifice for the good of the Creator. 
+The next day I brought him gifts I had brought for him from my country. He tried to sleep with me again and I refused. Aside from the fact that I was not interested, I just could not understand how a man on such a spiritual level would allow himself to violate the prohibition on sex outside of marriage and adultery (since I was a married woman). I told myself that if my mission on the path to spiritual transcendence is to marry Laitman then I must do so. I thought if he wants me as his wife then he knows the right way for me. Although I did not want him as a man, I was ready for this sacrifice for the good of the Creator.
 </li>
 <li>
 I told Laitman that I did not understand how he could sleep with a married woman and I told him that if he wanted to sleep with me then we should be married. According to Kabbalah, a woman's path to spirituality is only through her husband. Laitman just laughed and said we would not get married.
@@ -288,7 +293,7 @@ I started working on translating his lectures. The atmosphere at the center was 
 When Laitman returned from Russia he continued to manipulate me psychologically: he completely ignored me for a few days and then suddenly gave me attention and invited me to his office (in his apartment inside the center, next to his bedroom) to talk about the translations.
 </li>
 <li>
-When I was with him he told me explicitly that he wanted to sleep with me. I hoped I could please him without sleeping with him. I offered to give him a massage. He asked me, "Do you think I have a problem with women?" 
+When I was with him he told me explicitly that he wanted to sleep with me. I hoped I could please him without sleeping with him. I offered to give him a massage. He asked me, "Do you think I have a problem with women?"
 </li>
 <li>
 I also saw his wife once. She lived elsewhere, outside the center. When I asked him about her he said they had not lived together for twenty years.
@@ -329,7 +334,7 @@ I still wanted to study Kabbalah but did not know how. I had no one to talk to a
 <li>
 During the first month after I returned I tried to listen to Laitman's lessons again and found that I was incapable. I told myself that it could not be that the light would come through such a bad person. I did not understand why I no longer believed in his things. I felt doubt in his words. Before what happened I believed in Laitman more than I believed in myself.
 <br>
-For the first few weeks after I returned, Laitman and I did not correspond. After about a month, I listened to his lecture and wrote to him that I seemed to have returned to Bnei Baruch. I was hoping he would give me answers: I asked him what happened and why it happened that way. 
+For the first few weeks after I returned, Laitman and I did not correspond. After about a month, I listened to his lecture and wrote to him that I seemed to have returned to Bnei Baruch. I was hoping he would give me answers: I asked him what happened and why it happened that way.
 <br>
 He replied that he was very happy for my return and that he regretted everything that had happened, that everything had happened through his own fault and that he hoped we would forget everything that had happened and we would move on. He said that in the future I would know why everything happened the way it did.
 <br>
@@ -359,6 +364,9 @@ After I lost contact with Bnei Baruch, I hardly wrote about them on the Internet
 </ol>
 
 # The woman who gave this testimony was willing to testify in court, but despite her confidentiality, the details were leaked to people who wanted to prevent her from testifying and threatened her life and the lives of her family, and the woman eventually announced she would not testify against Michael Laitman.
+
+
+
 
 
 

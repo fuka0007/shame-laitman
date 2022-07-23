@@ -1,7 +1,7 @@
 <h1> Уважаемые студенты Бней Барух, обратите внимание! 27.04.22 Михаэль Лайтман получил повестку в суд по иску, в котором его обвиняют в изнасиловании бывшей студентки на фото.</h1>
 
 <a href="https://www.facebook.com/sharer/sharer.php?u=https://github.com/r/apistlaitman/shame-laitman/wiki/Russian" target="_blank">
-  <img src="./icons/icons8-facebook-64.png" alt="Michael Laitman Rapist">
+ <img src="./icons/icons8-facebook-64.png" alt="Michael Laitman Rapist">
 </a>
 <a href="https://www.linkedin.com/sharing/share-offsite/?url=https://github.com/rapistlaitman/shame-laitman/wiki/Russian" target="_blank">
 <img src="./icons/linkedin-icon.png" alt="Michael Laitman Rapist">
@@ -12,6 +12,7 @@
 <a href="https://connect.ok.ru/offer?url=https://github.com/rapistlaitman/shame-laitman/wiki/Russian" target="_blank">
 <img src="./icons/odnoklassniki.png" alt="Michael Laitman Rapist">
 </a>
+<br>
 
 В рамках обвинения бывшая студентка подала показания под присягой об изнасиловании, которое он совершил Михаэль Лайтман.
 Чтобы это не было опубликовано, он применял против нее резкие угрозы, в том числе использовал преступников, которые жестоко ей угрожали расправой с её матерью и семьи, и в результате она остановила иск и забрала заявление.
@@ -24,7 +25,7 @@
 Линки и картинки (ниже) показывают нам что журналист Гур Меггидо опубликовал у себя на твиттере публично и не боясь что против него будет выдвигаться обвинение о клевете (как это делается обычно организацией Бней Барух)...
 <br>
 Эта информация подтверждает заключения от судьи в котором Михаель Лайтман пытается уклониться от дачи показаний в суде, но судья отвергает его попытку дать показание по видео связи и обязует явиться в зал суда, по иску подходящему к концу в котором будет вынесено заключение, что Бней Барух является сектой.
-    
+
 ![](images/2.png)
 
 **[https://twitter.com/GurMegiddo/status/1513490961061535748](https://twitter.com/GurMegiddo/status/1513490961061535748)**
@@ -52,7 +53,7 @@
 ![](images/5.png)
 
 <a href="https://www.facebook.com/sharer/sharer.php?u=https://github.com/r/apistlaitman/shame-laitman/wiki/Russian" target="_blank">
-  <img src="./icons/icons8-facebook-64.png" alt="Michael Laitman Rapist">
+ <img src="./icons/icons8-facebook-64.png" alt="Michael Laitman Rapist">
 </a>
 <a href="https://www.linkedin.com/sharing/share-offsite/?url=https://github.com/rapistlaitman/shame-laitman/wiki/Russian" target="_blank">
 <img src="./icons/linkedin-icon.png" alt="Michael Laitman Rapist">
@@ -63,6 +64,7 @@
 <a href="https://connect.ok.ru/offer?url=https://github.com/rapistlaitman/shame-laitman/wiki/Russian" target="_blank">
 <img src="./icons/odnoklassniki.png" alt="Michael Laitman Rapist">
 </a>
+<br>
 
 Вот некоторые важные и ужасающие моменты из приведенных ниже свидетельства:
 
@@ -70,7 +72,7 @@
 Однако он иногда говорил: «без меня вы не сможете почувствовать Творца» или: «Я внутри вас, потому что я нахожусь на более высоком духовном уровне, и вы можете чувствовать Творца только через меня».
 Он сказал, что он мой проводник к Творцу».
 
-«Я помню ближе к дате конгресса Жак Дуев (https://www.facebook.com/jacques.douieb) сказал мне, что Лайтман попросил показать мою фотографию и, увидев фотографию подтвердил мою роль в качестве его помощника. 
+«Я помню ближе к дате конгресса Жак Дуев (https://www.facebook.com/jacques.douieb) сказал мне, что Лайтман попросил показать мою фотографию и, увидев фотографию подтвердил мою роль в качестве его помощника.
 <br>
 Его жена Ноам Дуев (https://www.facebook.com/douieb.noam) она тоже повторяла мне эти вещи во время Конгресса».
 
@@ -95,7 +97,7 @@
 <br><br>
 
 <a href="https://www.facebook.com/sharer/sharer.php?u=https://github.com/r/apistlaitman/shame-laitman/wiki/Russian" target="_blank">
-  <img src="./icons/icons8-facebook-64.png" alt="Michael Laitman Rapist">
+ <img src="./icons/icons8-facebook-64.png" alt="Michael Laitman Rapist">
 </a>
 <a href="https://www.linkedin.com/sharing/share-offsite/?url=https://github.com/rapistlaitman/shame-laitman/wiki/Russian" target="_blank">
 <img src="./icons/linkedin-icon.png" alt="Michael Laitman Rapist">
@@ -151,7 +153,7 @@
 # Визит в Израиль и личное знакомство с Лайтманом
 
 <li>
-В 2014 году я приехала в Израиль на конгресс Зоар. До этого я не знала Лайтмана лично. 
+В 2014 году я приехала в Израиль на конгресс Зоар. До этого я не знала Лайтмана лично.
 </li>
 <li>
 Я чувствовала, что обожаю его, и он был моим учителем, но я не знала его.
@@ -159,6 +161,7 @@
 <li>
 Во время конгресса Жак Дуев пригласил на сцену студентов Бней Барух во Франции их было около восьми членов виртуальной группы, а также на личную встречу с Лайтманом в его квартире в центре Бней Барух в Петах-Тикве. Во время встречи мы собрались для группового фото, и Лайтман покачал головой, как бы приглашая меня встать рядом с ним.
 </li>
+<br>
 
 ![](images/6.png)
 
@@ -188,7 +191,7 @@
 # Конгресс в моей стране проживания
 
 <li>
-    В рамках подготовки к конференции мы забронировали размещение в своеобразном коттедже на сайте конгресса. Лайтмана помещают в коттедж с его телохранителями — Михаилом Снилевичем <a href="https://www.facebook.com/michael.sanilevich" target="_blank">https://www.facebook.com/michael.sanilevich</a> — муж его дочери, и парнем по имени Арие Макаревич.
+   В рамках подготовки к конференции мы забронировали размещение в своеобразном коттедже на сайте конгресса. Лайтмана помещают в коттедж с его телохранителями — Михаилом Снилевичем <a href="https://www.facebook.com/michael.sanilevich" target="_blank">https://www.facebook.com/michael.sanilevich</a> — муж его дочери, и парнем по имени Арие Макаревич.
 </li>
 <li>
 Когда они прибыли на конгресс, он попросил разместить телохранителей в отдельной комнате, рядом с его комнатой.
@@ -354,3 +357,4 @@
 </ol>
 
 # Женщина давшая эти показания была готова дать показания в суде, но несмотря на ее конфиденциальность детали просочились участникам группы которые хотели помешать ей давать показания и угрожали ее жизни и жизни ее семьи, и женщина в конце концов заявила, что не будет свидетельствовать против Михаэля Лайтмана.
+

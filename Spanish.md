@@ -12,11 +12,13 @@
 <a href="https://connect.ok.ru/offer?url=https://github.com/rapistlaitman/shame-laitman/wiki/Spanish" target="_blank">
 <img src="./icons/odnoklassniki.png" alt="Michael Laitman Rapist">
 </a>
-
 <br>
+<br>
+
 Como parte de la acusación, una ex-alumna presentó una declaración jurada sobre la violación que él había cometido contra ella. Para evitar que esto se publicará, él usó duras amenazas en su contra, incluso utilizando delincuentes que la extorsionaron severamente, por lo que ella se retractó de su testimonio. Rav.Laitman de "Kabbalah La'am" trató de evadir el testimonio sobre una agresión sexual que supuestamente fue silenciado en el movimiento "Kabbalah La'am", alegando que era peligroso para él entrar al lugar debido a su estado de salud y el miedo de que pudiera contagiarse de Covid-19.
 <br>
 Después de mostrarle al juez fotos que se publicaron cuando se encontró con personas como si no hubiera Covid, el juez negó su solicitud de declarar en video.
+<br>
 <br>
 
 ![](images/1.png)
@@ -65,6 +67,7 @@ Aryeh Makarevich (sus guardaespaldas) alquila un lujoso hotel para Laitman con u
 <a href="https://connect.ok.ru/offer?url=https://github.com/rapistlaitman/shame-laitman/wiki/Spanish" target="_blank">
 <img src="./icons/odnoklassniki.png" alt="Michael Laitman Rapist">
 </a>
+<br>
 
 Aquí hay algunos aspectos destacados significativos y espantosos de los testimonios a continuación:
 
@@ -150,7 +153,10 @@ Cuando escuché su voz en clase, su voz me hizo sentir muy tranquila y pacífica
 # La visita a Israel y el conocimiento personal de Laitman
 
 <li>
-En 2014 llegué a Israel para el Congreso del Libro del Zohar. Antes de eso no conocía a Laitman personalmente. Sentí que lo adoraba y que era mi maestro pero no lo conocía.
+En 2014 llegué a Israel para el Congreso del Libro del Zohar. Antes de eso no conocía a Laitman personalmente. 
+</li>
+<li>
+Sentí que lo adoraba y que era mi maestro pero no lo conocía.
 </li>
 <li>
 Durante la conferencia, Jacques Douieb invitó a los hablantes de francés de Bnei Baruch a la conferencia, unos ocho miembros del grupo virtual, así como israelíes de habla francesa, para una reunión personal con Laitman en su apartamento en el Centro Bnei Baruch en Petah Tikva. Durante la sesión nos reunimos para una foto grupal y Laitman sacudió la cabeza hacia mí, como si me invitara a estar cerca de él.
