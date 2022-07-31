@@ -363,3 +363,8 @@ Después de que perdí el contacto con Bnei Baruch, apenas escribí sobre ellos 
 
 # La mujer que dio este testimonio estaba dispuesta a testificar en la corte, pero a pesar de su confidencialidad, los detalles se filtraron a personas que querían evitar que ella testificara y amenazaron su vida y la vida de su familia, y la mujer finalmente anunció que no testificaría contra Michael Laitman.
 
+# Testimonio de Tatiana Alexandrova sobre las relaciones sexuales de muchas mujeres con Laitman (algunas de ellas también están casadas con sus alumnos)
+
+##  <a href="https://drive.google.com/uc?export=download&id=1GHg4JisiL96nf0y5Wz9-dU3T5abEV_Qs"> Descargar archivo </a>
+
+![](images/10.png)

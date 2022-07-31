@@ -366,9 +366,7 @@
 
 #   עדות של טטיאנה אלכסנדרובה על יחסי מין של נשים רבות עם לייטמן (חלקם גם נשואות לתלמידיו)
 
-<a href="https://drive.google.com/uc?export=download&id=1_znSKLxr_MV9D_8Ger68EhEHFh67KNck">
-  קישור להורדה תצהיר
-</a>
+##  <a href="https://drive.google.com/uc?export=download&id=1_znSKLxr_MV9D_8Ger68EhEHFh67KNck"> קישור להורדה תצהיר</a>
 
 <br>
 
